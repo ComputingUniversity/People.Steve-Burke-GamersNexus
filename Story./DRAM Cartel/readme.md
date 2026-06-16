@@ -1,0 +1,1 @@
+- [The DRAM Cartel | Price Fixing, Anti-Consumer Collusion, & Corporate Conspiracy](https://youtu.be/jVzeHTlWIDY)
